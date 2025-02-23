@@ -1,2 +1,2 @@
 # lisanslisiteler
-Lisanslı Casino ve Bahis Siteleri 2025 Listesi
+## [**Lisanslı Casino ve Bahis Sitesi Giriş İçin Tıklayın**](https://store-playstore.com?label=85897e0ce1a6cbe4b790e709d6dad580)
